@@ -1,0 +1,1 @@
+Temporary download of 22 original Chicago shelf photos. Safe to delete this repo after download.
